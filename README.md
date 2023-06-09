@@ -62,6 +62,9 @@ Tracking key metrics such as website traffic, conversion rates, engagement metri
 Q5: How can I ensure the longevity and effectiveness of my digital marketing roadmap?
 To ensure the longevity and effectiveness of your digital marketing roadmap, stay up to date with industry trends, invest in ongoing learning, and remain open to adapting your strategies. Continuously monitor your performance, seek feedback from your audience, and embrace new technologies and techniques that align with your goals.
 
+Hi, my name is Maksym Zakharko, I am in Digital Marketing from 2015
+[maksymzakharko.com](https://maksymzakharko.com/)
+
 digital marketing roadmap
 marketing roadmap examples
 digital marketing learning roadmap
