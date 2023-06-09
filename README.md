@@ -1,5 +1,5 @@
-# Digital Marketing Roadmap
-Digital Marketing Roadmap
+#Digital Marketing Roadmap
+
 digital marketing roadmap
 marketing roadmap examples
 digital marketing learning roadmap
@@ -27,3 +27,15 @@ basic digital marketing roadmap
 roadmap for digital marketing expert
 quick guide digital marketing roadmap
 digital media marketing roadmap
+roadmap digital marketing
+roadmap for digital marketing
+roadmap marketing digital
+digital marketing strategy roadmap
+road map digital marketing
+marketing digital roadmap
+road map for digital marketing
+strategic roadmap for digital marketing
+digital marketing roadmap 2021
+road map to digital marketing
+road map of digital marketing
+internet marketing roadmap
